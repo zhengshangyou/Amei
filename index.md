@@ -25,7 +25,8 @@
 看到了阿梅的真相，你肯定很疑惑，为什么阿梅至少有八十几岁以上？为什么阿梅是个杀人犯？
 为了叙述明白这些问题，我请来了搜查科的林副主任。
                                               
-   <img src="https://github.com/zhengshangyou/Amei/blob/master/Ling%20Chuanhao.png?raw=true">林副主任的照片
+   <img src="https://github.com/zhengshangyou/Amei/blob/master/Ling%20Chuanhao.png?raw=true">
+                                                林副主任的照片
  
   
   
@@ -47,16 +48,17 @@
                            
       
                            
-      
-  2.杀人犯阿梅          
+ 2.杀人犯阿梅         
+         
+                                             
   <img src="https://github.com/zhengshangyou/Amei/blob/master/Ling%20tou.png?raw=true">林副主任：“关于杀人犯的问题，就很好解释了。”
    
   我：“此话怎讲？”
   
-  <img src="https://github.com/zhengshangyou/Amei/blob/master/Ling%20tou.png?raw=true">林副主任：“我曾经担任过长乐机场的安保总长，有一次在监控室看见了阿梅把便利店老板杀死了，当我跟巡警们到店里之后，却只剩下一具尸体，就连血迹都没了，也查不到任何指纹。我确信是阿梅干的，但监控室的录像带却被毁掉了，所以没有任何证据可以指控阿梅，阿梅是个杀人犯，但找不到确切的证据。”
-      
+  <img src="https://github.com/zhengshangyou/Amei/blob/master/Ling%20tou.png?raw=true">林副主任：“我曾经担任过长乐机场的安保总长，有一次在监控室看见了阿梅把便利店老板杀死了，但我跟巡警们到店里之后，却只剩下一具尸体，就连血迹都没了，也查不到任何指纹。我确信是阿梅干的，但监控室的录像带却被毁掉了，所以没有任何证据可以指控阿梅，阿梅是个杀人犯，但找不到确切的证据。”
+                                               
                            
-    
+    <img src="https://github.com/zhengshangyou/Amei/blob/master/Ling%20tou.png?raw=true">林副主任：“我们一定要逮捕阿梅！，以前阿梅犯案总是在不同的地方，现在的犯案范围却越来越小，快集中到我们的总部（下浒镇）了。这说明阿梅已经发现我们了，这是阿梅对我们的宣战布告！”
      
       
                            
