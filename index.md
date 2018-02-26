@@ -119,5 +119,5 @@
                                                                                                                                                附件：偶然在美国街头碰头的孙振权和特朗普
                                                                                                                                                
                                                                                                                                                
-<img src="https://github.com/zhengshangyou/Amei/blob/master/在美国与特朗普见面的孙振权.png?raw=true“>
+<img src="https://github.com/zhengshangyou/Amei/blob/master/S%20AND%20T.png?raw=true“>
                            
