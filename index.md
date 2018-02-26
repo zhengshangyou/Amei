@@ -61,4 +61,15 @@
     <img src="https://github.com/zhengshangyou/Amei/blob/master/Ling%20tou.png?raw=true">林副主任：“我们一定要逮捕阿梅！，以前阿梅犯案总是在不同的地方，现在的犯案范围却越来越小，快集中到我们的总部（下浒镇）了。这说明阿梅已经发现我们了，这是阿梅对我们的宣战布告！”
      
       
+      
+       
+        
+         
+        
+                                                                                                                                       
+                                                                                                                                              
+                                                                                                                                               附件：偶然在美国街头碰头的孙振权和特朗普
+                                                                                                                                               
+                                                                                                                                               
+<img src="https://github.com/zhengshangyou/Amei/blob/master/在美国与特朗普见面的孙振权.png?raw=true“>
                            
